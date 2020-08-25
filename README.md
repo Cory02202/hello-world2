@@ -2,4 +2,4 @@
 
 追加テキスト　by ymatsunami
 
-追加
+追加！！
